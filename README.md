@@ -1,0 +1,1 @@
+Our goal at Zellmer realty solutions is to help others with there properties and most of the time the problem is the property itself weather its in disrepair or your behind on your taxes we are here to help we've seen hundreds of different situations over the years and have helped alot of home owners so let us help you with a cash offer on your house today!
